@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Niritio.
 - 👀 I’m interested in fiction, music and writting.
-- 🌱 I’m currently learning playing guitar.
+- 🌱 I’m currently learning playing :guitar:.
 - 💞️ I’m looking to collaborate on translating.
 - 📫 Please send an E-mail to me if you are intrested.
 - By the way, I love :coffee:, :pizza:, :sandwich: and other things, if you want to know.
