@@ -2,7 +2,7 @@
 - 👀 I’m interested in fiction, music and writting.
 - 🌱 I’m currently learning :guitar:.
 - 💞️ I’m looking to collaborate on translating.
-- 📫 Please send :Email: to me if you are intrested.
+- 📫 Please send Email to me if you are intrested.
 - By the way, I love :coffee:, :pizza:, :sandwich: and other things, if you want to know.
 <!---
 Niritio/Niritio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
